@@ -5,7 +5,7 @@ title: "Jewish Ritual Garments: The Tallit"
 
 ![This is an alt text.](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQmIY6uW9-vnTELgWFoGokFAPmoKBh8frb0Xg&s "This is a sample image.")
 
-In Judaism, there are many objects that hold great importance in ritual practice. One of these material objects is the Tallit, a ritual garment that is square or rectangle in shape, and has tasseled fringe suspending from each of its four corners known as the tzitzit. These tassels are of great significance as they fulfill the commandments of Numbers 15.37-40, 
+In Judaism, there are many objects that hold great importance in ritual practice. One of these material objects is the Tallit, a four cornered prayer shawl worn during prayer. This ritual garment is square or rectangle in shape, and has tasseled fringe suspending from each of its four corners known as the tzitzit. These tassels are of great significance as they fulfill the commandments of Numbers 15.37-40, 
 
 > “The Lord said to Moses as follows: Speak to the Israelite people and instruct them to make for themselves fringes on the corners of their garments throughout the ages... That shall be your fringe; look at it and recall all the commandments of the Lord and observe them... Thus you shall remember all My commandments and to be holy to your God. I am the Lord your God, who brought you out of Egypt to be your God.” 
 
