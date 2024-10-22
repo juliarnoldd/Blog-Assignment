@@ -5,11 +5,11 @@ title: "Jewish Ritual Garments: The Tallit"
 
 In Judaism, there are many objects that hold great importance in ritual practice. One of these material objects is the Tallit, a ritual garment that is square or rectangle in shape, and has tasseled fringe suspending from each of its four corners known as the tzitzit. These tassels are of great significance as they fulfill the commandments of Numbers 15.37-40, 
 
-“The Lord said to Moses as follows: Speak to the Israelite people and instruct them to make for themselves fringes on the corners of their garments throughout the ages... That shall be your fringe; look at it and recall all the commandments of the Lord and observe them... Thus you shall remember all My commandments and to be holy to your God. I am the Lord your God, who brought you out of Egypt to be your God.” 
+> “The Lord said to Moses as follows: Speak to the Israelite people and instruct them to make for themselves fringes on the corners of their garments throughout the ages... That shall be your fringe; look at it and recall all the commandments of the Lord and observe them... Thus you shall remember all My commandments and to be holy to your God. I am the Lord your God, who brought you out of Egypt to be your God.” 
 
 Looking at these fringes, those of the Jewish faith are to remember God Who brought them forth and ordained them to a life of holiness. When these fringes are tied during ritual practice, they produce wholeness, unity, connection and sacredness.
 
-![This is an alt text.](https://www.google.com/url?sa=i&url=https%3A%2F%2Fannaabramzon.com%2Fblogs%2Fanna-abramzon-studio%2Ftallit-for-women&psig=AOvVaw1EVHSvfW1Uw4a7x0webfrL&ust=1729545648531000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCJigkuLxnYkDFQAAAAAdAAAAABAj "Jerusalem Tallit.” Anna Abramzon. Photograph. Accessed October 20, 2024. https://annaabramzon.com/en-ca/blogs/anna-abramzon-studio/tallit-for-women.")
+![This is an alt text.](https://cdn.shopify.com/s/files/1/0109/9517/1424/files/tallit-img-5.jpg?v=1669016388 "This is a sample image.")
 
 Historically, the Tallit has been worn only by men. However, since 1887, a change was initiated among the Conservative synagogues by embracing modernity and increasing gender equality. Eventually, this change allowed women to also start wrapping themselves in the tallit for ritual practices. In doing so, women, like men, connect to their spirituality by imitating God Himself who prays wrapped in the tallit of light according to the Talmud. By taking shelter under the tallit, one is symbolically taking shelter under God’s wings. 
 
