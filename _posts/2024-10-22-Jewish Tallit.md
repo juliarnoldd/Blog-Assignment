@@ -19,8 +19,17 @@ Even Further, the tallit is connected to important rites of passage in Jewish co
 
 Consequently, the tallit’s significance does not stop there. The garment is also connected to life-cycle events, such as weddings or ceremonies where the bride and groom will stand under the tallit as it serves the function of a chuppah, or canopy that symbolizes the union of two people. It is also a traditional practice to wrap the body of a Jew with their tallit upon death, however one must first cut the fringes off of one corner of the garment. When the tallit is wrapped around a dead body in such a way, it signifies that it is no longer viable and whole. When the fringes are cut, the social relations of the deceased are also severed, along with their ability to follow God’s commandments laid out in Numbers 15. 
 
+
+
 Sources: 
 
 Emmett, Ayala. “A Ritual Garment, the Synagogue, and Gender Questions.” Material Religion 3, no. 1 (2007): 76–87. doi:10.2752/174322007780095681.
 
 Hurvitz, Mitchell, M., and Sara Karesh E. “Tallit.” In Encyclopedia of World Religions: Encyclopedia of Judaism, by Sara E. Karesh and Mitchell M. Hurvitz, 2nd ed. Facts On File, 2016. https://search.credoreference.com/articles/Qm9va0FydGljbGU6NDc1NTMwNg==?aid=152116.
+
+“Jerusalem Tallit.” Anna Abramzon. Photograph. Accessed October 20, 2024. https://annaabramzon.com/en-ca/blogs/anna-abramzon-studio/tallit-for-women.
+
+“Jewish Religious Dress.” Encyclopaedia Britannica. Photograph. Accessed October 20, 2024.
+https://www.britannica.com/topic/tallit#/media/1/581625/170581.
+
+
